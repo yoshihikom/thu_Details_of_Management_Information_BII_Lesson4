@@ -1,1 +1,1 @@
-# thu_Details_of_Management_Information_BII_Lesson4
+# 2023年　経営情報各論BⅡ第4回講義資料
